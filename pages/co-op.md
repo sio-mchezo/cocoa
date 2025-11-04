@@ -1,7 +1,3 @@
-Systematica11y
-
-NHOI98yxF?
-
 Starting a co-op, especially one centered around a high-value product like cocoa from the foothills of Kilimanjaro, has tremendous potential for community empowerment. "Kilimanjaro Cocoa Co-op" is a strong, evocative name that will be great for branding.
 
 Here are your crucial first steps, broken down into phases. The key is to move systematically from community engagement to legal formalities.
